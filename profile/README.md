@@ -19,9 +19,9 @@ Juliana
 
 Valkyrian Wings Studio
 
-> "Onde nossos sonhos ganham asas e são realizados."
+> "Onde nossos sonhos ganham asas e se tornam realidade."
 > 
-> "Where our dreams take flight and come true."
+> "Where our dreams take wings and become reality."
 
 
 
