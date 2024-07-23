@@ -1,4 +1,4 @@
-## Welcome to the Valkyrian Wings Studio! 👋
+## Welcome to the Valkyrian Wings Studio! 🪽
 
 If you found us it means that you are lucky! 🍀
 
