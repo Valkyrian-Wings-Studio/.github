@@ -1,27 +1,26 @@
-## Welcome to the Valkyrian Wings Studio! 🪽
+# Welcome to Valkyrian Wings Studio! 🪽
 
-If you found us it means that you are lucky! 🍀
+#### Dear Reader and Explorer,
 
-We appreciate your visit but we are not open yet to display what we are doing. *-shhhh! That's a secret!*
+If you found us, it means you are lucky! 🍀
 
-But we are here **working hard** to publish a **brand new game soon**!
+We appreciate your visit, but we are not yet ready to reveal what we are working on *—shhhh! It’s a secret!*
 
+Rest assured, we are **working hard** to publish a brand-new game soon!
 
-
-Check out later for more info!
-
+Check back later for more info!
 
 Regards,
 
-Juliana
+#### Juliana
 
-@jufb
+#### @jufb
 
-Valkyrian Wings Studio
+### Valkyrian Wings Studio
 
 > "Onde nossos sonhos ganham asas e se tornam realidade."
 > 
-> "Where our dreams take wings and become reality."
+> "Where our dreams take flight and become reality."
 
 
 
